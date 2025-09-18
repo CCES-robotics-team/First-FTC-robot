@@ -1,2 +1,2 @@
 # First-FTC-robot
-I'll do a description later
+What is this, the Department of Redundancy Department?
